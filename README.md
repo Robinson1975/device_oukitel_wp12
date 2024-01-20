@@ -1,0 +1,1 @@
+# device_oukitel_wp12
